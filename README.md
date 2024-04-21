@@ -1,0 +1,1 @@
+Olá Professora, esse site esta bem basico, mas foi feito com carinho, nos tentamos ao maximo pensar em algo condizente com o site e que fosse uma das "seções de conteúdo", entao so demos um personagem ao site e explicamos sua origem. Obrigado pela atenção e um bom dia ou boa noite.
